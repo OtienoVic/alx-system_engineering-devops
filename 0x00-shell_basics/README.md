@@ -1,1 +1,1 @@
-Damn!hope am not lost
+My current direcoty
