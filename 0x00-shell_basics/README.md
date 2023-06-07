@@ -1,1 +1,1 @@
-My current direcoty
+My current directory
