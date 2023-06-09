@@ -1,1 +1,1 @@
-Change user to betty
+permission commands
